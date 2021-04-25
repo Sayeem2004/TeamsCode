@@ -6,5 +6,5 @@
 ## Placements
   - April 2021 
     - 13th out of 49 teams (Advanced Division) 
-    - Mohammad Khan Alvin Li & Maxwell Zen & Jeremy Ku-Benjet
+    - Mohammad Khan & Alvin Li & Maxwell Zen & Jeremy Ku-Benjet
  
