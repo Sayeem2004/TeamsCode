@@ -1,4 +1,5 @@
 ## Scores
+#### 13th Place Overall
 1) 100/100 Jeremy Ku-Benjet
 2) 100/100 Mohammad Khan
 3) 100/100 Alvin Li
