@@ -1,5 +1,5 @@
 ## Scores
-#### 13th Place Overall
+#### 13th Place Overall (Advanced Division)
 1) 100/100 Jeremy Ku-Benjet
 2) 100/100 Mohammad Khan
 3) 100/100 Alvin Li
